@@ -1,4 +1,4 @@
-# Hi 👋, I'm Yasmim Alves
+# Olá! 👋, Eu sou a Yasmim Teodora
 
 - ela/dela 
 
